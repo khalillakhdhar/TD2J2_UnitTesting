@@ -1,1 +1,1 @@
-# Exercice 1 J2
+# Exercice 1 Journée 2
